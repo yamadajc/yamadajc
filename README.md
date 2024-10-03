@@ -1,4 +1,4 @@
-### After a day, how about we grab a beer and just chill while we share some ideas?
+### After a day, how about we grab a beer and just chill while we share some ideas? 💡 🍻🍻
 
 
 
