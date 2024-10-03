@@ -1,4 +1,6 @@
-### Hi there 👋
+### After a day, how about we grab a beer and just chill while we share some ideas?
+
+
 
 <!--
 **yamadajc/yamadajc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
